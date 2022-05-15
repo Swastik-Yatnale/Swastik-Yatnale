@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Swastik-Yatnale
+- 👀 I’m interested in: Physics, mathematics, philosophy, classical music
+- 🌱 I’m currently learning: Python
+- 📫 How to reach me: E-mail[swastiky557@gmail.com] or discord[Tangent#1567]
